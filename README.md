@@ -1,2 +1,2 @@
 # Certificate
-My Certificate
+All of my Specialization
